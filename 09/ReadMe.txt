@@ -1,0 +1,1 @@
+Az elnevezesekert ne haragudj, kicsit homaly volt es utana ossze vissza csinaltam mindent, de mukodik :D
